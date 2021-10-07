@@ -1,0 +1,1 @@
+    A project that I've grown fond of. I've learn a lot by making this simple one-pager, although one could say that it's the purpose of a initial project, which to be fair it kinda was. My initiation ritual!
